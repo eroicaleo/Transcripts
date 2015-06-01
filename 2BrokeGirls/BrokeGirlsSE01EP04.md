@@ -138,3 +138,51 @@ Max: That's exactly the way it goes!
 
 Scene: In Subway Dentistry
 --------------------------
+
+Caroline: It's not that bad. It's not that bad.
+
+Max: No. For a dentist office in the subway, it's pretty good. Seriously, how are you not running out of here?
+
+Caroline: I have no choice. Now that I have no money or health insurance, I have to get used to this third-world situation.
+
+Max: Third-world situation? This is an underworld situation.
+
+Caroline: Okay, there's bulletproof glass. With a bullet in it.
+
+Max: All right, so the glass works.
+
+Caroline: It says to sign in.
+
+Max: Look, why don't you just take some of our cupcake business savings and go to a good dentist office? You know, one where you won't get a staph infection just from looking at the floor.
+
+Caroline: No, we can't do that. That's our future. Once we start doing that, it's a slippery slope.
+
+Max: "Nicole Richie"?
+
+Caroline: I don't want anyone to know I was here. I know this situation is less than ideal, but I am having a dental emergency.
+
+Max: No, he's having a dental emergency.
+
+Caroline: Come on, let's go over here and see if this man can help me. Hi.
+
+Doctor: Welcome to Subway Smiles. I told ya, we'll get to ya. I'm sorry, girls. I'm a little shaky. I was just shot at.
+
+Caroline: I have a problem with my teeth migrating. I have advanced bruxism.
+
+Doctor: Ah. I have hep C. Everybody's got their something. What do you need?
+
+Max: We need to be leaving.
+
+Caroline: I just need a bite guard.
+
+Doctor: Oh! I can do that. That's where I squirt foam into your mouth and make a mold. Come in the back.
+
+Max: If you go back there with him, you'll need a bite guard and a rape guard.
+
+Doctor: You want the gas?
+
+Caroline: Is that necessary?
+
+Doctor: You're gonna want the gas, sweetheart.
+
+Max: Let's get outta here.
