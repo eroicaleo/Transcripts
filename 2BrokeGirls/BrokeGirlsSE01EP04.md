@@ -186,3 +186,48 @@ Caroline: Is that necessary?
 Doctor: You're gonna want the gas, sweetheart.
 
 Max: Let's get outta here.
+
+Scene: In the restaurant.
+--------------------------
+
+Han: One more song before we close. I sing Spice Girls' Aww, tell me what you want, what you really, really want.
+
+Earl: That boy's more stiff than Michele Bachmann's husband at a Chippendales.
+
+Oleg: I will give you the money for trip to fancy dentist.
+
+Caroline: Really? Oleg, you would do that?
+
+Oleg: It's favor I do for you. And at some point, when I come to you for favor, you will say yes, like I say yes now.
+
+Caroline: Well, I'd need to know what that favor might be.
+
+Oleg: I can't say for sure.
+
+Caroline:Will it be in a week or a month?
+
+Oleg: I can't say for sure.
+
+Caroline: Will it be sexual?
+
+Oleg: Yes, it will be. This I can say for sure.
+
+Caroline: Thank you, but no. I am such an idiot.
+
+Max: I like it. Keep going.
+
+Caroline: My bite guard is just sitting in the bathroom of my townhouse. If I could only get up on the roof, then I could break in through the skylight like I used to when I snuck out in high school.
+
+Max: Hello, I'm Max. Have we met?
+
+Caroline: When I was 15, I paid the security system guys extra to not wire the skylight, and then I snuck out and went to Ilana Shapiro's Sweet 16...
+
+Max: Cute.
+
+Caroline: In Greece.
+
+Max: Hardcore. I used to sneak out of the house and huff spray paint with an ex-marine.
+
+Caroline: And sometimes, I'd just sneak out, look up at the stars, and dream.
+
+Max: And then you said that. 
