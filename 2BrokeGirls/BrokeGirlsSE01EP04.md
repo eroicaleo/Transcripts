@@ -231,3 +231,163 @@ Max: Hardcore. I used to sneak out of the house and huff spray paint with an ex-
 Caroline: And sometimes, I'd just sneak out, look up at the stars, and dream.
 
 Max: And then you said that. 
+
+Scene: In Caroline's townhouse
+------------------------------
+
+Caroline: See, I told you I can get this skylight open.
+
+Max: Turn on a light!
+
+Caroline: Wait till I close the closet door.
+
+Max: Why are the floors so bouncy?
+
+Caroline: It's called "carpet."
+
+Max: What? No way. No way. Is this Narnia? I'm about to say something I swore I'd never say. O. M. G. Again O. M. G.
+
+Max: It's lame, but nothing else really nails it. This is the room that O. M. G. was born for.
+
+Caroline: Max, it's just my closet.
+
+Max: Your clothes have a house! Look, look! You are rich! Like, I know you've said you were rich, but you are rich.
+
+Caroline: You're embarrassing me.
+
+Max: Are you crazy? This is nothing to be embarrassed about. What's this do? Oh, my God. You have a shoe rotisserie.
+
+Caroline: I designed it. I call it my "Ferris Heels."
+
+Max: I'd judge you if that wasn't exactly what I'd call it if I had one.
+
+Caroline: Okay, we should really go now. Lemme just grab my bite guard.
+
+Max: What? You have a museum in your closet?
+
+Caroline: Come on, it's just a bathroom.
+
+Max: Just a bathroom? It's the Louvre of pooping.
+
+Caroline: Here it is. Ow. Ow. Ow. Oh, yeah.
+
+Max: Do you two need to be left alone?
+
+Caroline: We have to go. Can't risk staying much longer.
+
+Max: Wow. Just when I thought your voice couldn't get any more grating.
+It'll loosen up.
+Oh.
+Seriously, we should go.
+Oh, um, I just have to do one more thing before we go.
+I think me and your tub are going steady.
+Oh, you found the jacuzzi button.
+I don't know who found who, but we're together now.
+I'm totally stealing some of these ridonculous bath soaps.
+This one's shaped like a vagina.
+Seashell.
+Sister, this is a mint green vagina.
+Did you go to the prom with your dad? That's my debutante dance, when I came out.
+Out? Like you came out that you were dating your dad? Gross.
+I think I can still fit a goose feather pillow in.
+Hey, what's this one of you and Chestnut and your dad? Oh, that's when my dad bought Chestnut for me.
+It was my first-period present.
+Your dad got you a horse for getting your period? O.
+M.
+G.
+Know how I celebrated getting my period? Stole a painkiller and half a beer from my mom's boyfriend.
+Wasn't a horse, but it was pretty awesome.
+How come there are no pictures of your mom? 'Cause there aren't any.
+She cheated on my dad when I was five, and my grandmother got rid of her.
+Not in, like, a mob way.
+In a society way, which is worse.
+So who raised you? Well, Estella from 1989 to '96.
+Then, Dominica from '97 until she went back to Guatemala.
+Then no one.
+Funny.
+You didn't have a father, and I didn't have a mother.
+So we're-- Oh, we're alike? Look around.
+We have nothing in common.
+Hey, what's this button for? Music.
+Oh, lemme guess.
+Show tunes? Boy bands? Both: I love this song! You are the girl ♪ that I've been dreamin' of ♪ ever since I was a little girl ♪ you are the girl ♪ that I've been dreamin' of ♪ ever since I was a little girl ♪ One! I'm bitin' my tongue ♪ Two! He's kissin' on you ♪ Three! Oh, why can't you see? ♪ do do do do do do do ♪ do do do do do do do ♪ do do do do do do do ♪ Dance! Dance! Dance! Dance! ♪ Dance! Dance! Dance! Dance! Dance! ♪ See? I knew what we had in common wouldn't last.
+Were you crumping for a second? Maybe.
+Were you tootsie-rolling for a second? Yes.
+Okay, get dressed.
+We really should go now.
+I have all the essentials.
+Tampons, toilet paper, comforter, body shimmer.
+Wait, what about the clothes? Oh, what am I gonna do? Walk around Williamsburg in a $3000 gown? Oh, my God.
+Wait a minute.
+Grab everything with a price tag on it that we can resell.
+Or that you think I'd look amazing in.
+Not the furs! They're wired! Why would you wire the furs? Everybody wires the furs, bitch! Security's gonna be here in ten minutes.
+Just grab everything you can.
+Wait! How are we going to carry it all back to Brooklyn? Jealous? Look, two seats.
+I think you got more stuff than me.
+Well, you spent five minutes saying good-bye to the tub.
+This was my fa purse to take dancing.
+How'd you keep it on your shoulder when you went all mad crump? Look.
+$200! It's not enough we're sitting on the subway in furs You gotta make it rain? This is so exciting.
+It's going right into our cupcake fund.
+- Or-- - Or what? Where was that place you always went with your dad? Toro with black truffle.
+You are about to have a sushi toro-gasm.
+Will you calm down? It's just-- Oh, sweet bejesus, that's delicious! If this is sushi, what was that other stuff we ate? Wrong.
+On every level.
+We need more of this.
+Like, all of it.
+Can we have some more toro? Thank you so much.
+And, uh I get it now 'cause I'm rich.
+I don't know how you're pulling it off.
+What do you mean? Giving up everything that you had.
+The maids, the closet, the dentist, the sushi, the tub.
+All of it.
+The tub.
+I almost can't give it up, but I only had it for an hour.
+You're kind of a badass.
+Max, you just called me a badass.
+I'm drunk on black truffle.
+It's my dad! Wait, he actually exists? Like the townhouse and the tub? The tub.
+Hi, daddy.
+How are you? I miss you so much.
+I'm good.
+No, really.
+I'm still staying in Brooklyn with my friend, Max.
+She's great.
+Oh! Oh, okay.
+Hold on.
+Love you, daddy.
+He wants to talk to you.
+Me? Why? I wouldn't know what to say.
+Take it! He's only allowed five minutes.
+Yo, what's up, Martin Channing? Oh.
+You're welcome, but I di-- Well, thank you.
+Yeah, she's great.
+Real trooper.
+Well, bye.
+What? Okay, I'll tell her.
+Daddy? He's gone.
+So that's what a father sounds like.
+What did he say? He wanted me to remind you to wear your bite guard.
+See, he can't be as bad as everyone says.
+He just can't be.
+Oh, my God.
+The 200 didn't cover it.
+Start checking the purses! Oh, hey.
+Do you take hats? Any cougars in the house? And in case you don't know, "cougar" means older lady with a large sexual appetite.
+Lady past prime with tight clothes who wants sex from young men.
+Max, what is the one thing worse than karaoke? Oh, no.
+That's right.
+Open mic night.
+Cougar also have face lift.
+From behind, look 22.
+She turn around, 72.
+It's true! It's funny 'cause it's true.
+Bad news.
+They heightened security because we tripped the alarm.
+The entire townhouse is locked down.
+We can never go back! My tub! Why does anything that gives me pleasure wind up behind bars? Forget about the tub.
+Everything was inventoried.
+We can't sell the furs.
+I should've thought of that! Yeah, you should've.
+'Cause you know they always inventory the furs, bitch!
