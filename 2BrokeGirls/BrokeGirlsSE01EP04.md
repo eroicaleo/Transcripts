@@ -276,31 +276,35 @@ Max: Do you two need to be left alone?
 Caroline: We have to go. Can't risk staying much longer.
 
 Max: Wow. Just when I thought your voice couldn't get any more grating.
-It'll loosen up.
-Oh.
-Seriously, we should go.
-Oh, um, I just have to do one more thing before we go.
-I think me and your tub are going steady.
-Oh, you found the jacuzzi button.
-I don't know who found who, but we're together now.
-I'm totally stealing some of these ridonculous bath soaps.
-This one's shaped like a vagina.
-Seashell.
-Sister, this is a mint green vagina.
-Did you go to the prom with your dad? That's my debutante dance, when I came out.
-Out? Like you came out that you were dating your dad? Gross.
-I think I can still fit a goose feather pillow in.
-Hey, what's this one of you and Chestnut and your dad? Oh, that's when my dad bought Chestnut for me.
-It was my first-period present.
-Your dad got you a horse for getting your period? O.
-M.
-G.
-Know how I celebrated getting my period? Stole a painkiller and half a beer from my mom's boyfriend.
-Wasn't a horse, but it was pretty awesome.
-How come there are no pictures of your mom? 'Cause there aren't any.
-She cheated on my dad when I was five, and my grandmother got rid of her.
-Not in, like, a mob way.
-In a society way, which is worse.
+
+Caroline: It'll loosen up. Oh. Seriously, we should go.
+
+Max: Oh, um, I just have to do one more thing before we go. I think me and your tub are going steady.
+
+Caroline: Oh, you found the jacuzzi button.
+
+Max: I don't know who found who, but we're together now. I'm totally stealing some of these ridonculous bath soaps. This one's shaped like a vagina.
+
+Caroline: It's a Seashell.
+
+Max: Sister, this is a mint green vagina. Did you go to the prom with your dad?
+
+Caroline: That's my debutante dance, when I came out.
+
+Max: Out? Like you came out that you were dating your dad?
+
+Caroline: Gross. I think I can still fit a goose feather pillow in.
+
+Max: Hey, what's this one of you and Chestnut and your dad?
+
+Caroline: Oh, that's when my dad bought Chestnut for me. It was my first-period present.
+
+Max: Your dad got you a horse for getting your period? O. M. G. Know how I celebrated getting my period? Stole a painkiller and half a beer from my mom's boyfriend.
+
+Max: Wasn't a horse, but it was pretty awesome. How come there are no pictures of your mom?
+
+Caroline: 'Cause there aren't any. She cheated on my dad when I was five, and my grandmother got rid of her. Not in, like, a mob way. In a society way, which is worse.
+
 So who raised you? Well, Estella from 1989 to '96.
 Then, Dominica from '97 until she went back to Guatemala.
 Then no one.
