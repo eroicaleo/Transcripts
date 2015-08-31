@@ -51,7 +51,7 @@ Max: I saved Earl's nuts.
 
 Oleg: Pick up! Hot food. Pick up.
 
-Max: Calm your bells down, Oleg. Not my stations. Where's Caroline? 
+Max: Calm your bells down, Oleg. Not my stations. Where's Caroline?
 
 Oleg: Would it make you jealous if I said she was back here with me?
 
@@ -230,7 +230,7 @@ Max: Hardcore. I used to sneak out of the house and huff spray paint with an ex-
 
 Caroline: And sometimes, I'd just sneak out, look up at the stars, and dream.
 
-Max: And then you said that. 
+Max: And then you said that.
 
 Scene: In Caroline's townhouse
 ------------------------------
@@ -305,37 +305,66 @@ Max: Wasn't a horse, but it was pretty awesome. How come there are no pictures o
 
 Caroline: 'Cause there aren't any. She cheated on my dad when I was five, and my grandmother got rid of her. Not in, like, a mob way. In a society way, which is worse.
 
-So who raised you? Well, Estella from 1989 to '96.
-Then, Dominica from '97 until she went back to Guatemala.
-Then no one.
-Funny.
-You didn't have a father, and I didn't have a mother.
-So we're-- Oh, we're alike? Look around.
-We have nothing in common.
-Hey, what's this button for? Music.
-Oh, lemme guess.
-Show tunes? Boy bands? Both: I love this song! You are the girl ♪ that I've been dreamin' of ♪ ever since I was a little girl ♪ you are the girl ♪ that I've been dreamin' of ♪ ever since I was a little girl ♪ One! I'm bitin' my tongue ♪ Two! He's kissin' on you ♪ Three! Oh, why can't you see? ♪ do do do do do do do ♪ do do do do do do do ♪ do do do do do do do ♪ Dance! Dance! Dance! Dance! ♪ Dance! Dance! Dance! Dance! Dance! ♪ See? I knew what we had in common wouldn't last.
-Were you crumping for a second? Maybe.
-Were you tootsie-rolling for a second? Yes.
-Okay, get dressed.
-We really should go now.
-I have all the essentials.
-Tampons, toilet paper, comforter, body shimmer.
-Wait, what about the clothes? Oh, what am I gonna do? Walk around Williamsburg in a $3000 gown? Oh, my God.
-Wait a minute.
-Grab everything with a price tag on it that we can resell.
-Or that you think I'd look amazing in.
-Not the furs! They're wired! Why would you wire the furs? Everybody wires the furs, bitch! Security's gonna be here in ten minutes.
-Just grab everything you can.
-Wait! How are we going to carry it all back to Brooklyn? Jealous? Look, two seats.
-I think you got more stuff than me.
-Well, you spent five minutes saying good-bye to the tub.
-This was my fa purse to take dancing.
-How'd you keep it on your shoulder when you went all mad crump? Look.
-$200! It's not enough we're sitting on the subway in furs You gotta make it rain? This is so exciting.
-It's going right into our cupcake fund.
-- Or-- - Or what? Where was that place you always went with your dad? Toro with black truffle.
-You are about to have a sushi toro-gasm.
+Max: So who raised you?
+
+Caroline: Well, Estella from 1989 to '96. Then, Dominica from '97 until she went back to Guatemala. Then no one. Funny. You didn't have a father, and I didn't have a mother. So we're--
+
+Max: Oh, we're alike? Look around. We have nothing in common. Hey, what's this button for?
+
+Caroline: Music.
+
+Max: Oh, lemme guess. Show tunes? Boy bands?
+
+Both: I love this song! You are the girl ♪ that I've been dreamin' of ♪ ever since I was a little girl ♪ you are the girl ♪ that I've been dreamin' of ♪ ever since I was a little girl ♪ One! I'm bitin' my tongue ♪ Two! He's kissin' on you ♪ Three! Oh, why can't you see? ♪ do do do do do do do ♪ do do do do do do do ♪ do do do do do do do ♪ Dance! Dance! Dance! Dance! ♪ Dance! Dance! Dance! Dance! Dance! ♪ See?
+
+Caroline:I knew what we had in common wouldn't last.
+
+Max: Were you crumping for a second?
+
+Caroline: Maybe.
+
+Max: Were you tootsie-rolling for a second?
+
+Caroline: Yes. Okay, get dressed. We really should go now. I have all the essentials. Tampons, toilet paper, comforter, body shimmer.
+
+Max: Wait, what about the clothes?
+
+Caroline: Oh, what am I gonna do? Walk around Williamsburg in a $3000 gown? Oh, my God. Wait a minute. Grab everything with a price tag on it that we can resell. Or that you think I'd look amazing in. Not the furs! They're wired!
+
+Max: Why would you wire the furs?
+
+Caroline: Everybody wires the furs, bitch! Security's gonna be here in ten minutes. Just grab everything you can.
+
+Max: Wait! How are we going to carry it all back to Brooklyn?
+
+# In the subway
+
+Max: Jealous?
+
+Caroline: Look, two seats.
+
+Max: I think you got more stuff than me.
+
+Caroline: Well, you spent five minutes saying good-bye to the tub. This was my fa purse to take dancing.
+
+Max: How'd you keep it on your shoulder when you went all mad crump?
+
+Caroline: Look. $200!
+
+Max: It's not enough we're sitting on the subway in furs You gotta make it rain?
+
+Caroline: This is so exciting. It's going right into our cupcake fund.
+
+Max: Or--
+
+Caroline: Or what?
+
+Max: Where was that place you always went with your dad?
+
+# In the restaurant
+
+Caroline: Toro with black truffle. You are about to have a sushi toro-gasm.
+
 Will you calm down? It's just-- Oh, sweet bejesus, that's delicious! If this is sushi, what was that other stuff we ate? Wrong.
 On every level.
 We need more of this.
