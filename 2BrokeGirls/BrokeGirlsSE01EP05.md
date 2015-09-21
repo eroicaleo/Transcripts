@@ -15,7 +15,7 @@ Caroline: Max, everyone keeps telling me they can't decide, it's like a support 
 
 Han: Something very magical about to happen Please let it be the rapture.
 
-I need a day off.
+Max: I need a day off.
 
 Han: In two minutes, something very hip is happening. If you have a camera, make sure the flash is on.
 
@@ -27,31 +27,38 @@ Flash mob! Party rockers in the house tonight ♪ whoo! Everybody just ♪ Oh, h
 
 Han: Why is flash mob over?
 
-Flash mobs were over a year ago.
-Nobody told Han! I want so bad to be hip.
-Start by never saying that again.
-Ooh ooh ooh ooh ooh ♪ Ooh ooh ooh ooh ooh ooh ooh ♪ Hello? Max, phone! No! What are you doing? Never answer the wall phone! What? Why? Only two people call the wall collection agencies and the landlord, looking for the original tenant whose name is on the lease! - Hang up.
-Quick! - Too late.
-I've got to man up and face it.
-Hello? This is what collection agency? No, my granddaughter Max is not here.
-She died.
-On her deathbed, she said it was the stress of being constantly harassed by creditors.
-That's juvenile.
-Give me the phone.
-Hi.
-So sorry about that.
-What's the issue exactly? Well, I'm sure she has every intention mm-hmm.
-Mm-hmm.
-Mm-hmm.
-Oh.
-Well, you're a doody head.
-Never answer the wall.
-But what are you gonna do about it? You can't just keep lying to collection agencies.
-You have to pay your bills.
-I have a system.
-I pay everyone five dollars a week just enough to keep them from freaking out.
-It's the methadone-clinic banking system.
-That is a complete waste of money.
+Caroline: Flash mobs were over a year ago.
+
+Han: Nobody told Han! I want so bad to be hip.
+
+Max: Start by never saying that again.
+
+Scene: In Max's apartment
+-------------------------
+
+Caroline: Ooh ooh ooh ooh ooh ♪ Ooh ooh ooh ooh ooh ooh ooh ♪ Hello? Max, phone!
+
+Max: No! What are you doing? Never answer the wall phone!
+
+Caroline: What? Why?
+
+Max: Only two people call the wall collection agencies and the landlord, looking for the original tenant whose name is on the lease! - Hang up. Quick! - Too late.
+
+Max: I've got to man up and face it. Hello? This is what collection agency? No, my granddaughter Max is not here. She died.
+
+Max: On her deathbed, she said it was the stress of being constantly harassed by creditors.
+
+Caroline: That's juvenile. Give me the phone. Hi. So sorry about that. What's the issue exactly? Well, I'm sure she has every intention mm-hmm. Mm-hmm. Mm-hmm. Oh. Well, you're a doody head.
+
+Max: Never answer the wall.
+
+Caroline: But what are you gonna do about it? You can't just keep lying to collection agencies. You have to pay your bills.
+
+Max: I have a system. I pay everyone five dollars a week just enough to keep them from freaking out. It's the methadone-clinic banking system.
+
+Caroline: That is a complete waste of money.
+
+
 Five dollars won't even cover the interest you're accruing.
 What's the interest rate on your credit card? Don't know, but my interest rate in the conversation is zero.
 Max, how could you not know that? That's one of the first things my father taught me about finance.
