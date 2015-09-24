@@ -13,9 +13,9 @@ Pick the thing that sucks the least, and put it in you mouth.
 
 Caroline: Max, everyone keeps telling me they can't decide, it's like a support group for bi-sexuals.
 
-Han: Something very magical about to happen Please let it be the rapture.
+Han: Something very magical about to happen.
 
-Max: I need a day off.
+Max: Please let it be the rapture. I need a day off.
 
 Han: In two minutes, something very hip is happening. If you have a camera, make sure the flash is on.
 
@@ -56,58 +56,69 @@ Caroline: But what are you gonna do about it? You can't just keep lying to colle
 
 Max: I have a system. I pay everyone five dollars a week just enough to keep them from freaking out. It's the methadone-clinic banking system.
 
-Caroline: That is a complete waste of money.
+Caroline: That is a complete waste of money. Five dollars won't even cover the interest you're accruing. What's the interest rate on your credit card?
 
+Max: Don't know, but my interest rate in the conversation is zero.
 
-Five dollars won't even cover the interest you're accruing.
-What's the interest rate on your credit card? Don't know, but my interest rate in the conversation is zero.
-Max, how could you not know that? That's one of the first things my father taught me about finance.
-Where at Embezzle U.
-? Max, I interned at Merrill Lynch.
-Let me help you with this.
-It's the least I can do.
-I had nowhere to go.
-You took me in.
-Let me repay my debt to you by helping with your debt to everyone in the world, apparently.
-If you keep talking, I'm going to Merrill Lynch myself.
-I'm one of those people who gets off on untangling big, complicated messes.
-And since you won't let me do your hair, let me do your bills.
-You want to do my bills? Here's my portfolio.
-And, uh, if you find chocolate sprinkles in there, they're not chocolate Or sprinkles.
-Okay.
-I've divided your bills into three categories "impossible," "next to impossible," and "how the hell did that happen?" And I've divided my roommate into three categories "annoying," "super annoying," and "how the hell did that happen?" I'm closing kitchen in ten minutes.
-I cannot stay later.
-I have date with new woman in my life.
-She's very special to me.
-I think she may be the one.
-You are both welcome to come watch us have sex.
-Just putting it out there.
-Just put it back in there.
-I'm so excited, I don't even know where to start.
-Drumroll, please.
-No? Okay.
-Oh, interesting.
-Here we have a bill from the pet castle, yet you don't have a pet, and you've never been to a castle Oh, except white castle.
-You used a credit card at white castle? Yep.
-That was good weed.
-And the pet thing was 'cause I found a stray and had to have her cleaned up before I could get anyone to take her.
-That would also explain the charge for neutering.
-Nah, actually, that was for me.
-Can't have any more of these coming out.
-Do you really think it's fiscally smart to be taking in strays? Good point.
-Move out tonight.
-What is this a student loan? Oh, my God.
-Max, you went to college? That wasn't a judgment.
-It was just shocking kind of like seeing a baby smoke on the Internet.
-I love that kid.
-Max, a student loan is the worst bill you can ignore.
-It can never be expunged.
-We're breaking out "expunged" on a weeknight? You can't run away from this bill.
-I can run away from anything.
-I'm on my fifth identity.
-It's just like that but underwater! Guys! Sorry, we're just closing, guys.
-I'll take them, Max.
-We need the uh, sit anywhere.
+Caroline: Max, how could you not know that? That's one of the first things my father taught me about finance.
+
+Max: Where? at Embezzle U?
+
+Caroline: Max, I interned at Merrill Lynch. Let me help you with this. It's the least I can do. I had nowhere to go. You took me in.
+
+Caroline: Let me repay my debt to you by helping with your debt to everyone in the world, apparently.
+
+Max: If you keep talking, I'm going to Merrill Lynch myself.
+
+Caroline: I'm one of those people who gets off on untangling big, complicated messes. And since you won't let me do your hair, let me do your bills.
+
+Max: You want to do my bills? Here's my portfolio. And, uh, if you find chocolate sprinkles in there, they're not chocolate Or sprinkles.
+
+Scene: In the restaurant.
+-------------------------
+
+Caroline: Okay. I've divided your bills into three categories "impossible," "next to impossible," and "how the hell did that happen?"
+
+Max: And I've divided my roommate into three categories "annoying," "super annoying," and "how the hell did that happen?"
+
+Oleg: I'm closing kitchen in ten minutes. I cannot stay later. I have date with new woman in my life. She's very special to me. I think she may be the one.
+
+Oleg: You are both welcome to come watch us have sex. Just putting it out there.
+
+Max: Just put it back in there.
+
+Caroline: I'm so excited, I don't even know where to start. Drumroll, please. No? Okay.
+
+Caroline: Oh, interesting. Here we have a bill from the pet castle, yet you don't have a pet, and you've never been to a castle Oh, except white castle. You used a credit card at white castle?
+
+Max: Yep. That was good weed. And the pet thing was 'cause I found a stray and had to have her cleaned up before I could get anyone to take her.
+
+Caroline: That would also explain the charge for neutering.
+
+Max: Nah, actually, that was for me. Can't have any more of these coming out.
+
+Caroline: Do you really think it's fiscally smart to be taking in strays?
+
+Max: Good point. Move out tonight.
+
+Caroline: What is this a student loan? Oh, my God. Max, you went to college? That wasn't a judgment. It was just shocking kind of like seeing a baby smoke on the Internet.
+
+Max: I love that kid.
+
+Caroline: Max, a student loan is the worst bill you can ignore. It can never be expunged.
+
+Max: We're breaking out "expunged" on a weeknight?
+
+Caroline: You can't run away from this bill.
+
+Max: I can run away from anything. I'm on my fifth identity. It's just like that but underwater!
+
+Max: Guys! Sorry, we're just closing, guys.
+
+Caroline: I'll take them, Max. We need the ...
+
+Max: uh, sit anywhere.
+
 What was that roadrunner move you just pulled? There's still a smoke outline of your body Hanging in the air out there.
 Did Wile E.
 Coyote just come in the diner? - No, but my ex-boyfriend did.
