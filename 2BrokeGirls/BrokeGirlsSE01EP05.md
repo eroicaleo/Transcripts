@@ -119,10 +119,12 @@ Caroline: I'll take them, Max. We need the ...
 
 Max: uh, sit anywhere.
 
-What was that roadrunner move you just pulled? There's still a smoke outline of your body Hanging in the air out there.
-Did Wile E.
-Coyote just come in the diner? - No, but my ex-boyfriend did.
+Max: What was that roadrunner move you just pulled? There's still a smoke outline of your body Hanging in the air out there. Did Wile E. Coyote just come in the diner? 
+
+No, but my ex-boyfriend did.
+
 Meep, meep.
+
 Why is William in Brooklyn? Why is William in this diner? Why is every inbred rich guy named William? I don't want to see him.
 Max, close the door.
 I don't want him to come in here.
@@ -181,15 +183,23 @@ Why no? Girl at urban outfitter said it was hip.
 You look like a lesbian I made out with once on a dare.
 Han, you're adorable exactly as you are.
 Why are you trying to be hip? To meet girls.
-Oh! It's not that bad in here.
-I thought my first trip to a laundromat would be a lot more depressing.
-Six years we spent together, and now he won't even look at me.
+
+Caroline: Oh! It's not that bad in here. I thought my first trip to a laundromat would be a lot more depressing.
+
+Max: Six years we spent together, and now he won't even look at me.
+
 Oh, not the bag.
-I just looked at his bag now yours? Max, it's driving me crazy.
-What did you major in in college? I majored in changing topics.
-So what did you ever see in your ex, the lost Winklevoss twin? We're not talking about William.
-We're talking about your bills.
-Well, I'm talking about your bill! Oh, face! Max We're trying to start a cupcake business.
+I just looked at his bag now yours?
+
+Caroline: Max, it's driving me crazy. What did you major in in college?
+
+Max: I majored in changing topics. So what did you ever see in your ex, the lost Winklevoss twin?
+
+Caroline: We're not talking about William. We're talking about your bills.
+
+Max: Well, I'm talking about your bill! Oh, face!
+
+Caroline: Max We're trying to start a cupcake business.
 And I can't believe I'm about to say this but with my father's financial baggage, you're our best chance for credit.
 Listen, everybody's broke in their 20s.
 And everybody hides from stuff.
