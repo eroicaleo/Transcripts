@@ -121,75 +121,118 @@ Max: uh, sit anywhere.
 
 Max: What was that roadrunner move you just pulled? There's still a smoke outline of your body Hanging in the air out there. Did Wile E. Coyote just come in the diner? 
 
-No, but my ex-boyfriend did.
+Caroline: No, but my ex-boyfriend did.
 
-Meep, meep.
+Max: Meep, meep.
 
-Why is William in Brooklyn? Why is William in this diner? Why is every inbred rich guy named William? I don't want to see him.
+Caroline: Why is William in Brooklyn? Why is William in this diner? Why is every inbred rich guy named William? I don't want to see him.
 Max, close the door.
 I don't want him to come in here.
-Yeah, 'cause that happens all the time.
+
+Max: Yeah, 'cause that happens all the time.
 Customers come in the front door and make a beeline through the kitchen to see if there's a waitress hiding in the walk-in freezer.
 Okay, what is the deal? Tell me fast.
 I'm nipping like crazy in here.
 Ooh, you're smuggling some gumdrops there, too, ice queen.
-His name is William Van Horn, and he's I am leaving for sex.
-Last chance for threesome, foursome, possibly fivesome, if her sister's train gets in on time.
-Oleg, please.
+
+[Notes: Large, suckable nipples that when erect are visible through clothing.]
+
+Caroline: His name is William Van Horn, and he's ...
+
+Oleg: I am leaving for sex. Last chance for threesome, foursome, possibly fivesome, if her sister's train gets in on time.
+
+Caroline: Oleg, please.
 I don't have time to be harassed right now.
-Oh, okay.
-I'll see you and the gumdrops tomorrow.
-Story.
-Go.
-We met at our parents' companies' parent company picnic.
-His family is the Boston Van Horns story.
-Stop.
-Cut to the end.
-Do we hate him? He dumped me when I lost all my money never called me, not an email, nothing.
-Oh, we hate him.
-Wait.
-Which one's your ex the Asian one, the black one? I'm kidding.
-No, seriously.
-The white one or the really, really white one? Really, really white.
-Service, service, service, service, service, serv you heard your bro.
-Service him.
-Oh, crushed! Hey, you better be careful, 'cause I can give you a run for your money.
-I don't have any money.
-Well, with a body like that, you don't need any.
-- Oh! Ba-bam! Did you actually think that was a good line, or is that what you do so the check gets paid by Richie Rich? Hold on.
-Who said I was rich? - Let me see your Hands.
-- What looking to see if I have poor-people calluses? No, I wanted to see how big your penis is.
-With Hands that size, you better be rich.
-Oh! Shazam! Not cool, bro.
-- What's your name? - Michelle Obama.
-We're closed.
-I'm William.
-Give me your number.
-Why? So you can put it in your phone and never call or text or email? Seriously.
-You wouldn't know what to do with a good girl if you had one.
-But you're not a good girl.
-That's why I want your number.
-So how about it? We're closed.
-- Your sign says "open till 2:00.
-" My, my.
-How time does fly.
-nighty night.
-What did I ever do to you? You didn't mention me, did you? Ugh, no.
-I just gave him just get to the end.
-Do you hate him? I hate him.
-That was the weirdest thing, seeing him come in here.
-No, the weirdest thing is coming in here right now.
-Why no? Girl at urban outfitter said it was hip.
-You look like a lesbian I made out with once on a dare.
-Han, you're adorable exactly as you are.
-Why are you trying to be hip? To meet girls.
+
+Oleg: Oh, okay. I'll see you and the gumdrops tomorrow.
+
+Max: Story. Go.
+
+Caroline: We met at our parents' companies' parent company picnic. His family is the Boston Van Horns...
+
+Max: story. Stop. Cut to the end. Do we hate him?
+
+Caroline: He dumped me when I lost all my money never called me, not an email, nothing.
+
+Max: Oh, we hate him. Wait. Which one's your ex the Asian one, the black one? I'm kidding.
+No, seriously. The white one or the really, really white one?
+
+Caroline: Really, really white.
+
+William: Service, service, service, service, service, serv...
+
+Max: you heard your bro. Service him.
+
+Friend: Oh, crushed!
+
+William: Hey, you better be careful, 'cause I can give you a run for your money.
+
+Max: I don't have any money.
+
+William: Well, with a body like that, you don't need any.
+
+Friend: Oh! Ba-bam!
+
+Max: Did you actually think that was a good line, or is that what you do so the check gets paid by Richie Rich?
+
+William: Hold on. Who said I was rich?
+
+Max: Let me see your Hands.
+
+William: What looking to see if I have poor-people calluses?
+
+Max: No, I wanted to see how big your penis is. With Hands that size, you better be rich.
+
+Friend: Oh! Shazam! Not cool, bro.
+
+William: What's your name?
+
+Max: Michelle Obama. We're closed. I'm William.
+
+William: Give me your number.
+
+Max: Why? So you can put it in your phone and never call or text or email?
+
+William: Seriously.
+
+Max: You wouldn't know what to do with a good girl if you had one.
+
+William: But you're not a good girl. That's why I want your number. So how about it?
+
+Max: We're closed.
+
+William: Your sign says "open till 2:00.
+
+Earl: "My, my. How time does fly. nighty night.
+
+William: What did I ever do to you?
+
+Caroline: You didn't mention me, did you?
+
+Max: Ugh, no. I just gave him...
+
+Caroline: just get to the end. Do you hate him?
+
+Max: I hate him.
+
+William: That was the weirdest thing, seeing him come in here.
+
+Max: No, the weirdest thing is coming in here right now.
+
+Han: Why no? Girl at urban outfitter said it was hip.
+
+Max: You look like a lesbian I made out with once on a dare.
+
+Caroline: Han, you're adorable exactly as you are. Why are you trying to be hip?
+
+Han: To meet girls.
+
+Scene: In the laundromat
+========================
 
 Caroline: Oh! It's not that bad in here. I thought my first trip to a laundromat would be a lot more depressing.
 
-Max: Six years we spent together, and now he won't even look at me.
-
-Oh, not the bag.
-I just looked at his bag now yours?
+Max: Six years we spent together, and now he won't even look at me. Oh, not the bag. I just looked at his bag now yours?
 
 Caroline: Max, it's driving me crazy. What did you major in in college?
 
@@ -199,49 +242,79 @@ Caroline: We're not talking about William. We're talking about your bills.
 
 Max: Well, I'm talking about your bill! Oh, face!
 
-Caroline: Max We're trying to start a cupcake business.
-And I can't believe I'm about to say this but with my father's financial baggage, you're our best chance for credit.
-Listen, everybody's broke in their 20s.
-And everybody hides from stuff.
-You run into freezers.
-I practice ignorance and blackout drinking.
-What's happening right now? Hola, dudarinos.
-The laundromat's closing early.
-We've rented it out for our '80s pop-up disco party.
-Bobby.
-- Shouldn't it be called an "'80s pop-up lame hipster will do anything to be ironic and lame" party? "Lame"? Don't think so.
-What? Vicki from small wonder is coming? Oh! Embarrassed to be you right now.
-Unless you chicks have be gone in ten minutes, or my man here will throw you out.
-Don't let his tube top fool you.
-Bobby is mad wiry.
-I'm wiry.
-Small wonder? Is that the show on TLC about the little-people magicians? No.
-It's an '80s sitcom about this little girl robot who lives with a loving family.
-A girl robot? That's totally unbelievable.
-No, that's totally awesome! The unbelievable part is the loving family.
-I love Vicki.
-She had no emotions and was empty inside.
-My role model! We're staying.
-$75? To do what stand here and dance next to Guy-girl and girl-guy over there? Come on, Chestnut, go poo-poo near the hipsters.
-Hey, how cool would it be if we could get Chess to go poo on a hipster? How can all of those people have $75 just to dance at a laundromat? I've been doing my roots with white-out.
-Hipsters in Williamsburg will pay for anything if it makes them feel like they're in on something new no one else knows about.
+Caroline: Max We're trying to start a cupcake business. And I can't believe I'm about to say this but with my father's financial baggage, you're our best chance for credit.
+
+Max: Listen, everybody's broke in their 20s. And everybody hides from stuff. You run into freezers. I practice ignorance and blackout drinking.
+What's happening right now?
+
+Hipster woman: Hola, dudarinos. The laundromat's closing early. We've rented it out for our '80s pop-up disco party. Bobby.
+
+Max: Shouldn't it be called an "'80s pop-up lame hipster will do anything to be ironic and lame" party?
+
+Hipster woman: "Lame"? Don't think so.
+
+Max: What? Vicki from small wonder is coming?
+
+Hipster woman: Oh! Embarrassed to be you right now. Unless you chicks have been gone in ten minutes, or my man here will throw you out.
+Don't let his tube top fool you. Bobby is mad wiry.
+
+Bobby: I'm wiry.
+
+Caroline: Small wonder? Is that the show on TLC about the little-people magicians?
+
+Max: No. It's an '80s sitcom [Note: situation comedy] about this little girl robot who lives with a loving family.
+
+Caroline: A girl robot? That's totally unbelievable.
+
+Max: No, that's totally awesome! The unbelievable part is the loving family. I love Vicki. She had no emotions and was empty inside. My role model! We're staying.
+
+Caroline: $75? To do what stand here and dance next to Guy-girl and girl-guy over there?
+
+Scene: In the street
+====================
+
+Max: Come on, Chestnut, go poo-poo near the hipsters.
+Hey, how cool would it be if we could get Chess to go poo on a hipster?
+
+Caroline: How can all of those people have $75 just to dance at a laundromat? I've been doing my roots with white-out.
+
+Max: Hipsters in Williamsburg will pay for anything if it makes them feel like they're in on something new no one else knows about.
 All you need's a gimmick.
-Dudes! Can we ride your horse? Sure.
-Okay.
-I got to go to the ATM.
-Wait.
-Stay right there.
-We'll be right back.
-Oh, my God.
-Max, we are literally looking our gift horse in the mouth.
-We have something that's better than an '80s disco party.
-We have a horse.
-If we throw a big enough party, charge hipsters for horse rides, we could pay off your student loan! You'd whore out Chestnut like that? Don't you have to get him hooked on heroin first? Max, I've got this.
-I'm a brilliant event planner.
-My sweet 16 was off the chain penthouse party, pink and black theme.
+
+Hipster: Dudes! Can we ride your horse?
+
+Max: Sure. A hundred bucks.
+
+Hipster: Okay.
+
+Hipster: I got to go to the ATM. Wait. Stay right there. We'll be right back.
+
+Caroline: Oh, my God. Max, we are literally looking our gift horse in the mouth.
+
+[Notes: Don't look a gift-horse in the mouth: A gift horse is a horse that was a gift, quite simply.
+When given a horse, it would be bad manners to inspect the horse's mouth to see if it has bad teeth.
+This can be applied as an analogy to any gift:
+Don't inspect it to make sure it matches some standard you have, just be grateful!]
+
+Caroline: We have something that's better than an '80s disco party. We have a horse.
+If we throw a big enough party, charge hipsters for horse rides, we could pay off your student loan!
+
+Max: You'd whore out Chestnut like that? Don't you have to get him hooked on heroin first?
+
+Caroline: Max, I've got this. I'm a brilliant event planner. My sweet 16 was off the chain [Note: wild fun, very attractive] penthouse party, pink and black theme.
 Alanis Morissette sang songs from jagged little pill.
-On my 16th birthday, my mom took too many jagged little pills, and I had to drive her to the emergency room to get her stomach pumped.
-Was your childhood based on the novel Push by Sapphire? I wish! The theme is '90s horse party.
+[Notes: Jagged Little Pill is the third studio album and international debut album by Canadian singer Alanis Morissette]
+
+Max: On my 16th birthday, my mom took too many jagged little pills, and I had to drive her to the emergency room to get her stomach pumped.
+
+Caroline: Was your childhood based on the novel Push by Sapphire?
+
+Max: I wish!
+
+Scene: In the restaurant
+========================
+
+The theme is '90s horse party.
 It's exactly the kind of hip event you're dying to be a part of.
 It would happen after closing, so it won't affect business.
 And all the horse rides will take place out back.
