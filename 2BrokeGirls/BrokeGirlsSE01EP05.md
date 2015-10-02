@@ -255,7 +255,7 @@ Hipster woman: "Lame"? Don't think so.
 
 Max: What? Vicki from small wonder is coming?
 
-Hipster woman: Oh! Embarrassed to be you right now. Unless you chicks have been gone in ten minutes, or my man here will throw you out.
+Hipster woman: Oh! Embarrassed to be you right now. Unless you chicks have 75 disco-loving buck, be gone in ten minutes, or my man here will throw you out.
 Don't let his tube top fool you. Bobby is mad wiry.
 
 Bobby: I'm wiry.
@@ -359,39 +359,69 @@ Really? 'Cause he's out there having fun, and I'm in here, hugging a tub of expi
 Look You see that wad of cash in your Hand? You earned that.
 Slap that wad in your palm a few times! Feel its power.
 That's all you got? Come on, really squeeze that wad! Feels good in your Hands, right? - Feels pretty good.
-- Yeah.
-Now slap it and say, "this is my wad!" This is my wad.
-This is my wad! This is my wad! Go out there.
-I'm going out there! As soon as the ladies calm down.
-Are you kidding? Show him what he's missing.
-Let 'em pop, playa! Where are you, you rich poseur? Oh! Uh Listen up! That was meant exclusively for one specific rich poseur.
-All you other rich poseurs, just continue with the '90s! Whoop, whoop! Where is he? Do you see him? Uh, no.
-He was right over there.
-He's gone.
-I don't get to shove this in his face.
+
+Max: Yeah. Now slap it and say, "this is my wad!"
+
+Caroline: This is my wad.
+
+Max: This is my wad!
+
+Caroline: This is my wad!
+
+Max: Go out there.
+
+Caroline: I'm going out there! As soon as the ladies calm down.
+
+Max: Are you kidding? Show him what he's missing. Let 'em pop, playa!
+
+Caroline: Where are you, you rich poseur?
+
+Max: Oh! Uh Listen up! That was meant exclusively for one specific rich poseur. All you other rich poseurs, just continue with the '90s! Whoop, whoop!
+
+Caroline: Where is he? Do you see him?
+
+Max: Uh, no.
+
+Caroline: He was right over there. He's gone. I don't get to shove this in his face.
 It would've been nice to put my wad in his face for a change.
-Oh, speaking of wads, look over there.
-Aw.
-He's such a little pimp.
-Are you okay? Yeah.
-Actually, I am.
+
+Max: Oh, speaking of wads, look over there.
+
+Caroline: Aw. He's such a little pimp.
+
+Max: Are you okay? Yeah.
+
+Caroline: Actually, I am.
 I guess I didn't need to go over there and make some big, dramatic speech, telling him that even though I'm a waitress, I'm better than him.
-I know that now.
-Thank you.
+I know that now. Thank you.
 And when I see him one day in the future, I'll be happy to tell him that.
-He just came out of the men's room.
-Let's get out of here! What? I thought you wanted to talk to him! I said, "the future.
-" This is the '90s.
-Let's get out of here.
-Run! Feels good running away from your bill, huh? So great.
-See, that's what I've been saying.
-Well, at least you don't have to run from your student loan bill.
+
+Max: He just came out of the men's room.
+
+Caroline: Let's get out of here!
+
+Max: What? I thought you wanted to talk to him!
+
+Caroline: I said, "the future." This is the '90s. Let's get out of here. Run!
+
+Max: Feels good running away from your bill, huh?
+
+Caroline: So great.
+
+Max: See, that's what I've been saying.
+
+Caroline: Well, at least you don't have to run from your student loan bill.
 We can pay that off and still have $50 for the cupcake fund.
-I hate that college won.
-Didn't you get anything out of it? You mean, besides mono and an art teacher whose idea of finger-painting was a little more "finger" than "painting"? Art teacher? Max, was that your major art? Keep your eyes on the road.
-You're driving.
-I just thought for, like, a second, I could maybe illustrate children's books.
-Max, that's so sweet.
-You're not like Vicki at all.
-Max, look.
+
+Max: I hate that college won.
+
+Caroline: Didn't you get anything out of it?
+
+Max: You mean, besides mono and an art teacher whose idea of finger-painting was a little more "finger" than "painting"?
+
+Caroline: Art teacher? Max, was that your major art?
+
+Max: Keep your eyes on the road. You're driving. I just thought for, like, a second, I could maybe illustrate children's books.
+
+Caroline: Max, that's so sweet. You're not like Vicki at all. Max, look.
 Han! Aw, our little somethin'-somethin' got him a little somethin'-somethin'! I doff my cap, milady!
