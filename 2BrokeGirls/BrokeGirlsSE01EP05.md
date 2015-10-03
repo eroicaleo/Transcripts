@@ -380,21 +380,17 @@ Max: Oh! Uh Listen up! That was meant exclusively for one specific rich poseur. 
 
 Caroline: Where is he? Do you see him?
 
-Max: Uh, no.
+Max: Uh, no. He was right over there. 
 
-Caroline: He was right over there. He's gone. I don't get to shove this in his face.
+Caroline: He's gone. I don't get to shove this in his face.
 It would've been nice to put my wad in his face for a change.
 
-Max: Oh, speaking of wads, look over there.
-
-Caroline: Aw. He's such a little pimp.
-
-Max: Are you okay? Yeah.
+Max: Oh, speaking of wads, look over there. Aw. He's such a little pimp.
+Are you okay? Yeah.
 
 Caroline: Actually, I am.
 I guess I didn't need to go over there and make some big, dramatic speech, telling him that even though I'm a waitress, I'm better than him.
-I know that now. Thank you.
-And when I see him one day in the future, I'll be happy to tell him that.
+I know that now. Thank you. And when I see him one day in the future, I'll be happy to tell him that.
 
 Max: He just came out of the men's room.
 
@@ -425,3 +421,4 @@ Max: Keep your eyes on the road. You're driving. I just thought for, like, a sec
 
 Caroline: Max, that's so sweet. You're not like Vicki at all. Max, look.
 Han! Aw, our little somethin'-somethin' got him a little somethin'-somethin'! I doff my cap, milady!
+[Note: something-something, when you want to decirbe something which is really good.]
