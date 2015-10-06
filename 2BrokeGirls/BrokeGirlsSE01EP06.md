@@ -4,17 +4,19 @@
 Scene: In the restaurant.
 -------------------------
 
-Max: Here you go, Earl.
+Max: Here you go, Earl. Table 12 throwing down a credit card on a patty melt.
+They really need those eight airline miles? Where are they going New Jersey?
+[patty melt: A patty melt is a type of hamburger consisting of a hamburger patty and Cheddar or Swiss cheese between two slices of bread.]
 
-Earl: Table 12 throwing down a credit card on a patty melt.
-They really need those eight airline miles? Where they going New Jersey?
-Credit cards are the downfall of America.
+Earl: Credit cards are the downfall of America.
 Well, credit cards and Kim Kardashian.
 I like her big ass as much as the next man, but don't go give the damn butt a franchise.
 
 Caroline: Max, I can take a lot.
-Please keep your sex life to yourself.
-I handled it when I lost my fortune, and I handled it when I lost my fortune.
+
+Max: Please keep your sex life to yourself.
+
+Caroline: I handled it when I lost my fortune, and I handled it when I lost my fortune.
 
 Max: You said that twice.
 
@@ -23,74 +25,117 @@ But this is too much.
 That couple that just left a $50 check, a $1.47 tip.
 Uh, I wasn't even aware they were still making pennies.
 I smiled and bent over backwards, giving them service all for $1.47? This makes me the lowest-paid hooker in New York.
+[bend over backwards: try very hard to please someone]
 
 Max: All right, give me that check. I'll handle this.
 
-Hey! Was something wrong with the service my girl over here gave you? No.
-Tipping's an option.
-So is me spitting in your food.
+Scene: In the restaurant.
+-------------------------
+
+Max: Hey! Was something wrong with the service my girl over here gave you?
+
+Man: No. Tipping's an option.
+
+Max: So is me spitting in your food.
 You might want to remember that the next time you leave a waitress pennies.
-I'm sorry.
-I didn't know.
-This was our first and last date.
-Sorry, dude.
-Looks like this little tip just lost you the chance to give her your little tip.
-Max, come in, sit down.
-There's something we have to talk about.
-This can't be about my drinking.
-I don't have the money to be a real alcoholic.
-Can you sit in that chair, please? I never sit in that chair.
-Well, today we're doing things differently breaking our pattern.
-- Hold up.
-Did you join scientology? And I went to Starbucks and got you a coffee and a vanilla bear claw.
-A Bear Claw? Awesome! I'll sit anywhere you want.
-My life is not where I want it to be.
-That $1.
-47 tip was a wake-up call reminding me that life will always undervalue you if you let it.
+
+Woman: I'm sorry. I didn't know. This was our first and last date.
+
+Max: Sorry, dude. Looks like this little tip just lost you the chance to give her your little tip.
+
+Scene: In the apartment.
+------------------------
+
+Caroline: Max, come in, sit down. There's something we have to talk about.
+
+Max: This can't be about my drinking. I don't have the money to be a real alcoholic.
+
+Caroline: Can you sit in that chair, please?
+
+Max: I never sit in that chair.
+
+Caroline: Well, today we're doing things differently, breaking our pattern.
+
+Max: Hold up. Did you join scientology?
+
+Caroline: And I went to Starbucks and got you a coffee and a vanilla bear claw.
+
+Max: A Bear Claw? Awesome! I'll sit anywhere you want.
+
+Caroline: My life is not where I want it to be. That $1.47 tip was a wake-up call reminding me that life will always undervalue you if you let it.
 Yes, I've been knocked down, but now it's time to fight back and grab life by the balls.
-I don't know if life likes having its balls grabbed.
+
+Max: I don't know if life likes having its balls grabbed.
 Some guys do, but those are usually the ones who want you to spoon them.
-I'd like to explain my vision for our future by walking you through My vision board.
-- Oh, no.
-- It's a simple tool.
-You're a simple tool.
-You start with a thin, white board Your thin, white, and I'm bored.
-Keep going.
-I can do this all day.
-I have a Bear Claw in me.
-I've been making vision boards for years, and I always achieve my goals.
-And you think it's that crazy little board and not your father's billions? - Max, it works.
-You put up pictures and inspirational words of things you want in your life.
+
+Caroline: I'd like to explain my vision for our future by walking you through My vision board.
+
+Max: Oh, no.
+
+Caroline: It's a simple tool.
+
+Max: You're a simple tool.
+
+Caroline: You start with a thin, white board.
+
+Max: You're thin, white, and I'm bored. Keep going. I can do this all day. I have a Bear Claw in me.
+
+Caroline: I've been making vision boards for years, and I always achieve my goals.
+
+Max: And you think it's that crazy little board and not your father's billions?
+
+Caroline: Max, it works. You put up pictures and inspirational words of things you want in your life.
 See? I have success, a cupcake business, and a picture of a beautiful new bed.
-Ah, the ones at the Asylum look different than that, so don't get attached.
-Sleeping on that couch is holding me back.
-I never get a restful night's sleep, and I need a good nine hours.
-What you need is a good nine inches.
-That should be on your vision board.
-It is on the back.
-Nice.
-Now, unless you're willing to switch the bedroom every other week No, that sounds mormon.
-Then I want to install a murphy bed in here.
+
+Max: Ah, the ones at the Asylum look different than that, so don't get attached.
+
+Caroline: Sleeping on that couch is holding me back. I never get a restful night's sleep, and I need a good nine hours.
+
+Max: What you need is a good nine inches. That should be on your vision board.
+
+Caroline: It is on the back.
+
+Max: Nice.
+
+Caroline: Now, unless you're willing to switch the bedroom every other week...
+
+Max: No, that sounds mormon.
+
+Caroline: Then I want to install a murphy bed in here.
 The bed folds up against the wall during the day, so you'd still maintain your signature Williamsburg "I don't care about anything chic or nice" decor.
-Who's going to build it? 'Cause it's not me.
+
+Max: Who's going to build it? 'Cause it's not me.
 I'm already being taken advantage of at my babysitting job.
 Peach has me lugging things back and forth to help with the twins' first birthday party.
 I've been sorting through clown resumes for a week.
-Peach is throwing a birthday party? Did you ask her if we can cater the desserts? She hires fancy people with real companies.
-We're not a real business.
-See? This is what I'm talking about.
-You mock the vision board, but look here it is, our cupcake shop.
-I don't think we can both fit in there.
-Max, you have to start imagining what our life can be.
+
+Caroline: Peach is throwing a birthday party? Did you ask her if we can cater the desserts?
+
+Max: She hires fancy people with real companies. We're not a real business.
+
+Caroline: See? This is what I'm talking about.
+You mock the vision board, but look here, it is, our cupcake shop.
+
+Max: I don't think we can both fit in there.
+
+Caroline: Max, you have to start imagining what our life can be.
 You deserve a cupcake shop, and I deserve a new bed.
 All you have to do is dream it.
-No, all you have to do is do it.
+
+Max: No, all you have to do is do it.
 And for you to build a Murphy bed, it'll take a miracle.
-So unless you have Jesus or Jesus on that board Not going to happen.
-Who is it? It's Jesus From Williamsburg hardware.
+So unless you have Jesus or Jesus on that board. Not going to happen.
+
+Max: Who is it?
+
+Deliver guy: It's Jesus From Williamsburg hardware.
 We got your do-it-yourself Murphy bed.
-See how I made that happen? Vision.
-So which one of them has the nine inches? Guess what I did today? Jesus? What do you think? I think the bed still isn't built.
+
+Caroline: See how I made that happen? Vision.
+
+Max: So which one of them has the nine inches?
+
+Guess what I did today? Jesus? What do you think? I think the bed still isn't built.
 No, but it's almost finished.
 Look Notice anything different about me? I have answer.
 You had boob job.
