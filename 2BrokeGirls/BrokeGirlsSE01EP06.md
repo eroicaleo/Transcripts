@@ -29,7 +29,7 @@ I smiled and bent over backwards, giving them service all for $1.47? This makes 
 
 Max: All right, give me that check. I'll handle this.
 
-Scene: In the restaurant.
+Scene: Out the restaurant.
 -------------------------
 
 Max: Hey! Was something wrong with the service my girl over here gave you?
@@ -103,6 +103,7 @@ Max: No, that sounds mormon.
 
 Caroline: Then I want to install a murphy bed in here.
 The bed folds up against the wall during the day, so you'd still maintain your signature Williamsburg "I don't care about anything chic or nice" decor.
+[chic: stylish]
 
 Max: Who's going to build it? 'Cause it's not me.
 I'm already being taken advantage of at my babysitting job.
@@ -114,7 +115,7 @@ Caroline: Peach is throwing a birthday party? Did you ask her if we can cater th
 Max: She hires fancy people with real companies. We're not a real business.
 
 Caroline: See? This is what I'm talking about.
-You mock the vision board, but look here, it is, our cupcake shop.
+You mock the vision board, but look here, it is our cupcake shop.
 
 Max: I don't think we can both fit in there.
 
@@ -128,42 +129,64 @@ So unless you have Jesus or Jesus on that board. Not going to happen.
 
 Max: Who is it?
 
-Deliver guy: It's Jesus From Williamsburg hardware.
+Jesus: It's Jesus. From Williamsburg hardware.
 We got your do-it-yourself Murphy bed.
 
 Caroline: See how I made that happen? Vision.
 
 Max: So which one of them has the nine inches?
 
-Guess what I did today? Jesus? What do you think? I think the bed still isn't built.
-No, but it's almost finished.
-Look Notice anything different about me? I have answer.
-You had boob job.
-Your "b"s have turned into "c"s, and for that, I give you an "a.
-" No, I had my uniform altered.
-Yes, life dealt me a bad uniform, but with a little vision, I can shape it the way it works best for me.
-That should be a tip in your inspirational book, which I'm guessing is called cutting pictures out of magazines isn't just for serial killers anymore.
-And this is exciting look.
-The other really important thing I did today made us business cards.
+Scene: In the restaurant.
+=========================
+
+Caroline: Guess what I did today?
+
+Max: Jesus?
+
+Caroline: What do you think?
+
+Max: I think the bed still isn't built.
+
+Caroline: No, but it's almost finished.
+
+Max: Look Notice anything different about me?
+
+Oleg: I have answer. You had boob job. Your "b"s have turned into "c"s, and for that, I give you an "a".
+
+Caroline: No, I had my uniform altered. Yes, life dealt me a bad uniform, but with a little vision, I can shape it the way it works best for me.
+
+Max: That should be a tip in your inspirational book, which I'm guessing is called cutting pictures out of magazines isn't just for serial killers anymore.
+
+Caroline: And this is exciting! Look, the other really important thing I did today, made us business cards.
 Now you can give one to Peach and throw our hat into the party ring.
-You're her babysitter.
-You already have a connection.
-Yeah, a connection to her babies' asses.
-See? That's your limited vision.
-Plus, Peach is interviewing this gay guy who used to work for Martha Stewart.
+You're her babysitter. You already have a connection.
+[throw your hat into the ring: to announce your intention of entering a competition or election]
+
+Max: Yeah, a connection to her babies' asses.
+
+Caroline: See? That's your limited vision.
+
+Max: Plus, Peach is interviewing this gay guy who used to work for Martha Stewart.
 I mean, gay, Martha Stewart we can't top that.
-Just give her the cards.
-We have to start somewhere.
-See? "Max's homemade cupcakes.
-" And look "Max Black, owner/baker.
-" "Owner/baker"? That's pretty cool.
-See? There it is.
-It's real.
-But the name sucks a big one.
-"Homemade" it sounds like homeschooled, like we're churning out cupcakes that aren't comfortable around other people.
-Or it sounds delicious.
-And the cupcake on the card has a cherry on it.
-My cupcakes don't have a cherry haven't since I was 13.
+[can't top that: can't beat that]
+
+Caroline: Just give her the cards. We have to start somewhere. See? "Max's homemade cupcakes.".
+And look "Max Black, owner/baker."
+
+Max: "Owner/baker"? That's pretty cool.
+
+Caroline: See? There it is. It's real.
+
+Max: But the name sucks a big one. "Homemade", it sounds like homeschooled, like we're churning out cupcakes that aren't comfortable around other people.
+[churn something out: to produce something in large numbers, perhaps carelessly.]
+
+Caroline: Or it sounds delicious.
+
+Max: And the cupcake on the card has a cherry on it. My cupcakes don't have a cherry. Haven't since I was 13.
+
+Scene: In Peach's apartment
+===============================
+
 If you could really get under his shoulder blades that's where he carries all his stress.
 Don't say your real thoughts.
 Don't say your real thoughts.
