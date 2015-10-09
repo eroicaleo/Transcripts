@@ -187,36 +187,49 @@ Max: And the cupcake on the card has a cherry on it. My cupcakes don't have a ch
 Scene: In Peach's apartment
 ===============================
 
-If you could really get under his shoulder blades that's where he carries all his stress.
-Don't say your real thoughts.
-Don't say your real thoughts.
-Max, we're using our spa voice today.
-Use my spa voice? Okay.
-I can't afford this.
-I want you to make sure the twins drink lots of water after, you know, to flush out the toxins.
-Toxins? All they drink is breast milk.
-I can't be sure what the woman I buy that from puts in her body.
+Peach: If you could really get under his shoulder blades that's where he carries all his stress.
+
+Max: Don't say your real thoughts. Don't say your real thoughts.
+
+Peach: Max, we're using our spa voice today.
+
+Max: Use my spa voice? Okay. I can't afford this.
+
+Peach: I want you to make sure the twins drink lots of water after, you know, to flush out the toxins.
+
+Max: Toxins? All they drink is breast milk.
+
+Peach: I can't be sure what the woman I buy that from puts in her body.
 We're all so tense about the birthday party.
-If everything isn't perfect, how will they live with the shame? Um, Peach, um Speaking of the the party, uh, I-I started this, um, thing, and it's probably dumb, but I don't need it.
-Like, I'm fine.
-I don't need it.
-It's just more like like a like a Favor.
+If everything isn't perfect, how will they live with the shame?
+
+Max: Um, Peach, um Speaking of the the party, uh, I-I started this, um, thing, and it's probably dumb, but I don't need it.
+Like, I'm fine. I don't need it. It's just more like like a like a Favor.
 Um, but, uh, the thing is, there's the cards, so I was thinking may "maybly" "maybly"? What's that? It's not a word, right? - I was not saying a word.
-- I'm sorry.
-I'm done with whatever this is that you're doing.
+
+Peach: I'm sorry. I'm done with whatever this is that you're doing.
 I have to go meet the Martha Stewart queen and hear his party pitch.
 Just remember, at 3:00, the twins have their spray tans.
-Well, that's exactly how I envisioned that.
-Let me see what you're drawing, Johnny.
-A rat with a civil war hat.
-Is that your comment on how politicians view soldiers? No, it's an actual rat I saw wearing a hat.
-See, when you tend bar till 4:00 a.
-m.
-, you see a lot of weird stuff.
-And when you waitress till 2:00, you see a loser drawing a rat on a napkin.
-Now sign it, please.
-Hmm.
-You realize my art won't be worth anything till I'm dead? Why do you think I keep inviting you here to eat week after week? Question how does it feel to be the owner of an original piece of napkin art worth roughly Less than the worth of the napkin? Well, I got to get back to work.
+
+Max: Well, that's exactly how I envisioned that.
+
+Scene: In the restaurant.
+=========================
+
+Max: Let me see what you're drawing, Johnny. A rat with a civil war hat.
+Is that your comment on how politicians view soldiers?
+
+Johnny: No, it's an actual rat I saw wearing a hat.
+See, when you tend bar till 4:00 a.m., you see a lot of weird stuff.
+
+Max: And when you waitress till 2:00, you see a loser drawing a rat on a napkin. Now sign it, please.
+
+Johnny: Hmm. You realize my art won't be worth anything till I'm dead?
+
+Max: Why do you think I keep inviting you here to eat week after week?
+
+Johnny: Question, how does it feel to be the owner of an original piece of napkin art worth roughly Less than the worth of the napkin? Well, I got to get back to work.
+
 All right, bye.
 Pick up table ten.
 I watch you over there.
