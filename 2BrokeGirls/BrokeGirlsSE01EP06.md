@@ -230,42 +230,61 @@ Max: Why do you think I keep inviting you here to eat week after week?
 
 Johnny: Question, how does it feel to be the owner of an original piece of napkin art worth roughly Less than the worth of the napkin? Well, I got to get back to work.
 
-All right, bye.
-Pick up table ten.
-I watch you over there.
-Much sexual tension with deadbeat bartender.
-He's not just a bartender.
-He's a street artist.
-And all I did was bite a piece of celery.
-When I think of all the times I asked you to bite my celery And nothing.
-Okay, my side work's done, and my tables are all caught up.
-So, tell me, did you give Peach the card? No, I didn't.
-- Why? - It was like my mouth wouldn't let me do it.
-That's crazy.
-What's so hard about going up to Peach and saying, "good afternoon, Peach.
-" "Exciting news I started a cupcake business.
-" "Here's our card.
-" "Please pass them out to all your friends, and help us launch our exciting new business venture.
-" "Thank you.
-" That sounds needy, like when someone asks you to come to their one-woman show.
-"Somebody date-raped me, and I didn't think I'd live through it, but I did, and now I'm stronger, and, uh, still needy.
-" There is nothing needy about having a quality product and wanting it out there.
+Max: All right, bye.
+
+Oleg: Pick up table ten. I watch you over there. Much sexual tension with deadbeat bartender.
+
+Max: He's not just a bartender. He's a street artist. And all I did was bite a piece of celery.
+
+Oleg: When I think of all the times I asked you to bite my celery And nothing.
+
+Caroline: Okay, my side work's done, and my tables are all caught up.
+So, tell me, did you give Peach the card?
+
+Max: No, I didn't.
+
+Caroline: Why?
+
+Max: It was like my mouth wouldn't let me do it.
+
+Caroline: That's crazy.
+What's so hard about going up to Peach and saying, "good afternoon, Peach."
+"Exciting news I started a cupcake business."
+"Here's our card."
+"Please pass them out to all your friends, and help us launch our exciting new business venture."
+"Thank you."
+
+Max: That sounds needy, like when someone asks you to come to their one-woman show.
+"Somebody date-raped me, and I didn't think I'd live through it, but I did, and now I'm stronger, and, uh, still needy."
+
+Caroline: There is nothing needy about having a quality product and wanting it out there.
 Look at Earl he has a CD on display.
-Yeah, but he's cool about it.
+
+Max: Yeah, but he's cool about it.
 He doesn't get all late-night infomercial and shove them down people's throats.
-Earl? How many CDs have you sold at the diner? Well, in this current economy It's been pretty light.
-- May I? - Mm-hmm.
-Hi.
-You guys look like music lovers.
+[late-night infomercial: 电视购物]
+
+Caroline: Earl? How many CDs have you sold at the diner?
+
+Earl: Well, in this current economy It's been pretty light.
+
+Caroline: May I?
+
+Max: Mm-hmm.
+
+Caroline: Hi. You guys look like music lovers.
 This is the best saxophone CD you will ever hear recorded by our cashier Earl Samson.
-He's played with all the greats Coltrane, Hancock, even Bacharach.
+He's played with all the greats, Coltrane, Hancock, even Bacharach.
 His music career derailed due to a heroin addiction, but now he's clean and sober and, at 83, still following his dream.
-Only $9.
-95 a copy.
-Who'd like one? Thank you! Earl, four CDs.
-Is any of that true? Nope.
-She even made up my damn last name.
-That girl can sell.
+Only $9.95 a copy. Who'd like one? Thank you! Earl, four CDs.
+
+Max: Is any of that true?
+
+Earl: Nope. She even made up my damn last name. That girl can sell.
+
+Scene: In Peach's apartment
+===========================
+
 Oh! Max Will you come look at Brangelina? I think the spray-tan lady went a little too far.
 I wanted them to look tan, not foreign.
 A little lebanese, but that'll clear up in a day or two.
