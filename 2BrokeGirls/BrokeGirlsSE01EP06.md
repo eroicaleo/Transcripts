@@ -256,6 +256,7 @@ What's so hard about going up to Peach and saying, "good afternoon, Peach."
 
 Max: That sounds needy, like when someone asks you to come to their one-woman show.
 "Somebody date-raped me, and I didn't think I'd live through it, but I did, and now I'm stronger, and, uh, still needy."
+[needy: desperate, plain and simple]
 
 Caroline: There is nothing needy about having a quality product and wanting it out there.
 Look at Earl he has a CD on display.
@@ -285,134 +286,211 @@ Earl: Nope. She even made up my damn last name. That girl can sell.
 Scene: In Peach's apartment
 ===========================
 
-Oh! Max Will you come look at Brangelina? I think the spray-tan lady went a little too far.
+Peach: Oh! Max Will you come look at Brangelina? I think the spray-tan lady went a little too far.
 I wanted them to look tan, not foreign.
-A little lebanese, but that'll clear up in a day or two.
-I'm having the worst day.
-Jessica Seinfeld stole the Martha Stewart boy.
-I am so upset with her.
-I thought we were pretending to be friends.
+
+Max: They look fine. A little lebanese, but that'll clear up in a day or two.
+
+Peach: I'm having the worst day. Jessica Seinfeld stole the Martha Stewart boy.
+I am so upset with her. I thought we were pretending to be friends.
 And now I have no one to do the desserts.
-- Hello, Peach, exciting news I have a cupcake business.
+
+Max: Hello, Peach, exciting news! I have a cupcake business.
 They're really good.
 Give these to your friends and help launch a new business or whatever.
-That's it.
-I did it.
-Boom! Okay, the bed still isn't built.
-But the mattress came, and it's so good.
-Oh, no this is not okay.
-We're not keeping a mattress on the floor.
-We're poor, not crackheads.
-And you tricked me.
+That's it. I did it. Boom!
+
+Scene: In the apartment.
+========================
+
+Caroline: Okay, the bed still isn't built. But the mattress came, and it's so good.
+
+Max: Oh, no this is not okay. We're not keeping a mattress on the floor.
+We're poor, not crackheads. And you tricked me.
 I did my part, so you better get this bed done.
-Max, you gave Peach the cards.
-I'm so proud of you.
-What did she say? No.
-Shut it.
-Do it.
-Relax.
-The bed will be assembled and hidden in the wall by the end of the day, 'cause I decided to do what cute girls have been doing for centuries.
-I asked a guy for help.
-You called a guy? Oh, is he going to climb up your long blonde hair and rescue you from your murphy-bed tower? Wait.
-You don't know any guys.
-Who did you invite? - Johnny.
-- No.
-No, no, no, no.
-Eh, I don't want to see Johnny.
+
+Caroline: Max, you gave Peach the cards. I'm so proud of you. What did she say?
+
+Max: No. Shut it. Do it.
+
+Caroline: Relax. The bed will be assembled and hidden in the wall by the end of the day,
+'cause I decided to do what cute girls have been doing for centuries. I asked a guy for help.
+
+Max: You called a guy? Oh, is he going to climb up your long blonde hair and rescue you from your murphy-bed tower?
+Wait. You don't know any guys. Who did you invite?
+
+Caroline: Johnny.
+
+Max: No. No, no, no, no. Eh, I don't want to see Johnny.
 I had a weird thing with him at the diner last night.
-I thought you guys were friends.
-I don't know what we are.
-He was fake interviewing me with a celery stalk 'Cause you're both grown-ups.
-And when he put it near my mouth, I thought he wanted me to bite it, so I - You bit it? - I bit it! - That is weird and humiliating and hot.
-Yes, yes, and, yes.
-Call him right now! He can't come over here.
+
+Caroline: I thought you guys were friends.
+
+Max: I don't know what we are.
+He was fake interviewing me with a celery stalk.
+
+Caroline: 'Cause you're both grown-ups.
+
+Max: And when he put it near my mouth, I thought he wanted me to bite it, so I
+
+Caroline: You bit it?
+
+Max: I bit it!
+
+Caroline: That is weird and humiliating and hot.
+
+Max: Yes, yes, and, yes. Call him right now! He can't come over here.
 Look around! I have his napkins hanging up everywhere.
 He'll think I'm dexter.
-Don't answer that.
-- Don't you - Come on in, Johnny.
-Yes, I did it.
-I need a bed.
-You are so selfish! Yes, I'm selfish, and you're Dexter.
-So, quick help me take down the napkins.
-Oh, god, there are so many! How come I never noticed how many there were before? I don't know.
-Same reason you didn't notice your father stealing everybody's money.
-Really? Really? Now when I'm helping you? You're right.
-We'll trash you later.
-Why don't you just ask him what the celery moment meant? I don't want to ask him.
-You don't want to ask anybody anything.
-It's not like the business cards.
-What am I going to say? "Good afternoon, Johnny.
-" "Exciting news I have started an oddly sexual celery-biting business.
-" Be right there, Johnny! Yo.
-So I brought tools per your request and beer, I made an executive decision on.
+Don't answer that. Don't you!
+
+Caroline: Come on in, Johnny. Yes, I did it. I need a bed.
+
+Max: You are so selfish!
+
+Caroline: Yes, I'm selfish, and you're Dexter.
+
+Caroline: So, quick help me take down the napkins.
+Oh, god, there are so many! How come I never noticed how many there were before?
+
+Max: I don't know. Same reason you didn't notice your father stealing everybody's money.
+
+Caroline: Really? Really? Now when I'm helping you?
+
+Max: You're right. We'll trash you later.
+
+Caroline: Why don't you just ask him what the celery moment meant?
+
+Max: I don't want to ask him.
+
+Caroline: You don't want to ask anybody anything.
+
+Max: It's not like the business cards.
+What am I going to say? "Good afternoon, Johnny."
+"Exciting news I have started an oddly sexual celery-biting business."
+
+Caroline: Be right there, Johnny!
+
+Max: Yo.
+
+Johnny: So I brought tools per your request and beer, I made an executive decision on.
 So that's what you do with my art.
-Just one, and I put it up there.
-She doesn't even like it she's like, "why would anyone hang up stupid napkin art?" Right off my back.
+
+Caroline: Just one, and I put it up there.
+She doesn't even like it. she's like, "why would anyone hang up stupid napkin art?"
+
+Johnny: Right off my back.
 Had a couple of these on the subway.
-So here's the wood.
-You can't help her she needs to learn a lesson about doing things for herself.
+
+Caroline: So here's the wood.
+
+Max: You can't help her she needs to learn a lesson about doing things for herself.
 She thinks we're her daddy, and we'll go back on our word, and she'll get a pony.
-Well, you can see why she'd think that.
+
+Johnny: Well, you can see why she'd think that.
 I'm going to see if the horse wants a beer.
-Hmm, maybe put my glasses on him get crazy up in this piece! When you're out there, ask him what the celery meant.
-Get busy, princess.
-Daddy's got company.
-Well, little lady, I reckon a cowboy'd get used to a pretty sweet setup like this.
+Hmm, maybe put my glasses on him get crazy up in this piece!
+
+Caroline: When you're out there, ask him what the celery meant.
+
+Max: Get busy, princess. Daddy's got company.
+
+Johnny: Well, little lady, I reckon a cowboy'd get used to a pretty sweet setup like this.
 It's a hard life out on the trails.
-Yeah, it's hard for my people, too, since you stole all our land and gave us blankets covered in smallpox.
-I do declare, I'm sorry for the disease blankets.
+
+Max: Yeah, it's hard for my people, too, since you stole all our land and gave us blankets covered in smallpox.
+
+Johnny: I do declare, I'm sorry for the disease blankets.
 But they did keep you warm, I bet, until they killed you, that is.
-"I do declare" is not cowboy.
+
+Max: "I do declare" is not cowboy.
 That's Southern Belle.
-I think you're looking for "darn tootin'" or "dag nab it.
-" Cowboys did not say "dag nab it.
-" Yeah, they did.
-"Someone done gone stole my horse, dag nab it.
-" I think you're thinking "doggone it.
-" No, "dag nab it" cowboy.
-Do you really think you know cowboy better than me? Which one of us has a horse? Which one of us has assless chaps? Should I go inside and help Caroline? No.
-I'm sure she's doing just fine.
-Can I ask you something? Sure.
-When you put the sss we should get on the horse! - Okay.
-- Yeah! Use three-inch lag screw to secure ledger board to wall studs "aboot" every 12 inches.
-Ooh! Your canadian voice is so dull, I can't understand a word you're saying.
+I think you're looking for "darn tootin'" or "dag nab it."
+
+Johnny: Cowboys did not say "dag nab it."
+
+Max: Yeah, they did.
+"Someone done gone stole my horse, dag nab it."
+
+Johnny: I think you're thinking "doggone it."
+
+Max: No, "dag nab it" cowboy.
+
+Johnny: Do you really think you know cowboy better than me?
+
+Max: Which one of us has a horse?
+
+Johnny: Which one of us has assless chaps? Should I go inside and help Caroline?
+
+Max: No. I'm sure she's doing just fine.
+Can I ask you something?
+
+Caroline: Sure. When you put the sss we should get on the horse!
+
+Johnny: Okay.
+
+Max: Yeah!
+
+TV: Use three-inch lag screw to secure ledger board to wall studs "aboot" every 12 inches.
+
+Caroline: Ooh! Your canadian voice is so dull, I can't understand a word you're saying.
 There's got to be a video with a better voice.
-"How to build a Murphy bed Morgan Freeman.
-" Interesting bit of information about horses they hurt your balls.
-Yeah, mine hurt, too.
-You would think after all these years of riding a horse, man would have evolved to have his balls on top instead of underneath.
+"How to build a Murphy bed Morgan Freeman."
+
+Johnny: Interesting bit of information about horses they hurt your balls.
+
+Max: Yeah, mine hurt, too.
+
+Johnny: You would think after all these years of riding a horse, man would have evolved to have his balls on top instead of underneath.
 Life would be so much easier.
-Well, yeah, but I don't see a lot of old-timey ladies wanting to get with the top balls.
-Are you thinking about the celery? No, I'm still thinking about my balls.
+
+Max: Well, yeah, but I don't see a lot of old-timey ladies wanting to get with the top balls.
+Are you thinking about the celery?
+
+Johnny: No, I'm still thinking about my balls.
 Now I'm thinking about the celery.
-That was weird, right? Not weird, really more, um, intense.
-Intense good or intense bad? Intense intense.
-Whoo.
-Whoa.
-Oh.
-Did I just grab your yeah, I don't know.
-"Maybly.
-" "Maybly"! That's not a word, right? - I should - I got to get down.
-Me too.
-My balls.
-So take your makeup brush, take your mirror, and you want to comb your eyebrows upwards.
-What are you doing? Okay, okay.
-I thought I typed in "Morgan Freeman.
-" But I'm so tired, what came up was "more gay men"" but this damon guy is a genius.
+
+Max: That was weird, right?
+
+Johnny: Not weird, really more, um, intense.
+
+Max: Intense good or intense bad?
+
+Johnny: Intense intense.  Whoo.  Whoa.  Oh.  Did I just grab your...
+
+Max: yeah, I don't know. "Maybly." "Maybly"! That's not a word, right?
+
+Johnny: I should, I got to get down.
+
+Max: Me too. My balls.
+
+TV: So take your makeup brush, take your mirror, and you want to comb your eyebrows upwards.
+
+Max: What are you doing?
+
+Caroline: Okay, okay. I thought I typed in "Morgan Freeman." But I'm so tired,
+what came up was "more gay men"" but this damon guy is a genius.
 If he had a video on how to build a Murphy bed, it'd already be done.
-Wait.
-Where's Johnny? What happened? Did you ask him? No, he left.
-Out the back? Yeah, it got even weirder.
-He grabbed my boob.
+Wait. Where's Johnny? What happened? Did you ask him?
+
+Max: No, he left.
+
+Caroline: Out the back?
+
+Max: Yeah, it got even weirder. He grabbed my boob.
 Or he didn't grab my he grabbed my boob.
 I just don't know whether it was on purpose.
 But I asked, like you told me to, and now I have a weird boob moment to go with my weird celery moment.
-That is very complicated.
+
+Caroline: That is very complicated.
 But I'm great with relationship stuff.
 So come on over here, and we'll hammer it all out while we hammer this all out.
 Come on, this is where you break down and finally help me build the bed.
-No, this is where I go to my already-built bed.
+
+Max: No, this is where I go to my already-built bed.
 And after Peaches today and Whatever that was out there with my boob, I'm not showing anyone my cards anymore business or personal.
+
+
 Go in! Go in! Oh! What is happening out here? That's the kind of pounding that's supposed to happen after you're in the bed.
 I can't do it.
 I tried.
